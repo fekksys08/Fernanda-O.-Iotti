@@ -1,6 +1,6 @@
 # hi there
 
--Fernanda O. Iotti.
+-Fernanda Oliveira Iotti.
 
 -Tenho 16 anos.
 
