@@ -6,7 +6,9 @@
 
 -Moro em São Paulo-SP.
 
--Faço Marketing Digital á 4 anos.
+-Eu estudo no Escola Estadual Domingos Quirino Ferreira Cel
+
+-Eu estudo Marketing Digital á 4 anos.
 
 -E-mail de contato: nakamurasayori18@gmail.com
 
